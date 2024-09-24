@@ -1,5 +1,5 @@
-I make video games on Roblox.
+I make video games.
 
-Hex, Q-Clash, Sakura High.
+Sakura Party, Sakura High, Q-Clash, Hex.
 
-Contact: vincentwijma@gmail.com / @Silenxed on Twitter
+Contact: vincentwijma@gmail.com
